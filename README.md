@@ -1,4 +1,4 @@
-# R2quell
+# R2quel
 Boas vindas ao meu perfil !! 📸🌻🐶
 >Estou estudando na Alura
 
